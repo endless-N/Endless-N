@@ -10,7 +10,7 @@
 𓆝 𓆟 𓆞 𓆝
 
 
-Just call me N to Aiy
+Just call me N or Aiy
 
 
 .𖥔 ݁ ˖ 𝑆𝐼𝐺𝑁 𝐴𝑇𝐴 𝑃𝐿𝑍 ! 𝐼𝑀 𝑊𝐴𝐼𝑇𝐼𝑁𝐺 𝑈 ˃ᴗ˂
