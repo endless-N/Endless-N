@@ -1,10 +1,10 @@
-@˙ . ꒷🍰 . 𖦹˙—𝑁
+@˙ . ꒷🌌 . 𖦹˙—𝑁
 　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
 
 　　 　　　 　ᨸ꒰ྀི　　N　　𝚘𝚛　　Aiy　　ྀིᨯ
 
 　　 　　　　　 𝄈　　 he　　╱　　they　 　
-𓎢𓎟𓎟𓎡
+![Alt text](Mymoon.png)
 
  　            
 ![Alt text](tumblr_e1af60e671b65591ddc19444354ef9a6_e0a4b812_250.png)  / ![Alt text](tumblr_5f01500220f0911b9ad607111d84b43b_9c0fa2ff_250.png) 
