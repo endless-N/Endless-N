@@ -9,19 +9,19 @@ wip
 
 　　 　　　 　　　 ˳ᴗ ᴗ)　　　　![Alt text](odysseyduo.png)　　ㅤㅤㅤᚐ
 
-　　 　　　 　૮꒰ྀི　　　　ㅤㅤㅤ꒱ྀིა　　 𝄈
+　　 　　　 　꒰ྀི![Alt text](Thisnotall.png)　　　　ㅤㅤㅤ꒱ྀི　　 𝄈
 
 　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
 
 　　 　　　 　ᨸ꒰ྀི　　N　　𝚘𝚛　　Aiy　　ྀིᨯ
 
-　　 　　　　　 𝄈　　 prn　　╱　　prn　 　 e
+　　 　　　　　 𝄈　　 he　　╱　　they　 　 e
 
 　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
 
 　　 　　　 　　　　𝒢𓍢　　apple　　𓈒　　
 
-　　　　　 　　　 　txtxtxt　 　𝄈　　prn　　ᨯ
+　　　　　 　　　 　![Alt text]　 　𝄈　　he　　ᨯ
 
 　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
 
