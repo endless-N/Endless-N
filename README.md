@@ -23,9 +23,9 @@
 
 　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
 
-　　 　　　 　　　　𝒢𓍢　　　　𓈒　　
+　　 　　　 　　　　𝒢𓍢　　　　main𓈒　　
 
-　　　　　 　　　 　![Alt text]　 　𝄈　　　　ᨯ
+　　　　　 　　　 　![Alt text](Mymain.png)　 　𝄈　　　　ᨯ
 
 
 
