@@ -19,9 +19,9 @@ wip
 
 　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
 
-　　 　　　 　　　　𝒢𓍢　　apple　　𓈒　　
+　　 　　　 　　　　𝒢𓍢　　　　𓈒　　
 
-　　　　　 　　　 　![Alt text]　 　𝄈　　he　　ᨯ
+　　　　　 　　　 　![Alt text]　 　𝄈　　　　ᨯ
 
 　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
 
