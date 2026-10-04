@@ -1,5 +1,9 @@
 @˙ . ꒷🍰 . 𖦹˙—𝑁
-wip
+　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
+
+　　 　　　 　ᨸ꒰ྀི　　N　　𝚘𝚛　　Aiy　　ྀིᨯ
+
+　　 　　　　　 𝄈　　 he　　╱　　they　 　
 𓎢𓎟𓎟𓎡
 
  　            
@@ -11,11 +15,6 @@ wip
 
 　　 　　　 　꒰ྀི![Alt text](Thisnotall.png)　　　　ㅤㅤㅤ꒱ྀི　　 𝄈
 
-　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
-
-　　 　　　 　ᨸ꒰ྀི　　N　　𝚘𝚛　　Aiy　　ྀིᨯ
-
-　　 　　　　　 𝄈　　 he　　╱　　they　 　 e
 
 　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
 
