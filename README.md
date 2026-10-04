@@ -1,6 +1,8 @@
 @˙ . ꒷🌌 . 𖦹˙—⚠️
 - 𝑆𝑒𝑛𝑠𝑖𝑡𝑖𝑣𝑒 𝑚𝑖𝑛𝑑 + 𝑂𝑏𝑠𝑒𝑠𝑠𝑖𝑣𝑒-𝑐𝑜𝑚𝑝𝑢𝑙𝑠𝑖𝑣𝑒 𝑑𝑖𝑠𝑜𝑟𝑑𝑒𝑟
-- 
+- 𝐼'𝑀 𝑁𝑂𝑇 𝐵𝑂𝑈𝑁𝐷𝐴𝑅𝑌 𝐵𝑅𝐸𝐴𝐾𝐸𝑅
+
+𝐷𝑁𝐼 𝐵𝐵
 　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
 
 　　 　　　 　ᨸ꒰ྀི　　N　　𝚘𝚛　　Aiy　　ྀིᨯ
@@ -12,7 +14,7 @@
 ![Alt text](tumblr_e1af60e671b65591ddc19444354ef9a6_e0a4b812_250.png)  / ![Alt text](tumblr_5f01500220f0911b9ad607111d84b43b_9c0fa2ff_250.png) 
         ![Alt text](stars.gif.webp)          　
              
-
+odysseyduo
 　　 　　　 　　　 ˳ᴗ ᴗ)　　　　![Alt text](odysseyduo.png)　
            　　╱　 ִ[☾.𝐴𝑇𝐴 𝐵𝑂𝑂𝐾](https://endles.atabook.org/)
    　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
