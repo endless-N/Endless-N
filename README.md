@@ -11,7 +11,12 @@
         ![Alt text](stars.gif.webp)          　
              
 
-　　 　　　 　　　 ˳ᴗ ᴗ)　　　　![Alt text](odysseyduo.png)　　ㅤㅤㅤᚐ
+　　 　　　 　　　 ˳ᴗ ᴗ)　　　　![Alt text](odysseyduo.png)　
+           
+   　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
+
+　　 Please sign !　　╱　 ִ[☾.𝐴𝑇𝐴 𝐵𝑂𝑂𝐾](https://endles.atabook.org/)　　　𓏼 ͜͜✚
+
 
 　　 　　　 　꒰ྀི![Alt text](Thisnotall.png)　　　　ㅤㅤㅤ꒱ྀི　　 𝄈
 
@@ -22,9 +27,6 @@
 
 　　　　　 　　　 　![Alt text]　 　𝄈　　　　ᨯ
 
-　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
-
-　　 　　　　　 　co　　╱　 ִ[☾.𝐴𝑇𝐴 𝐵𝑂𝑂𝐾](https://endles.atabook.org/)　　　𓏼 ͜͜✚
 
 
 ![Alt text](Mymoon.png)
