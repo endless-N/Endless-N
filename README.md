@@ -19,7 +19,7 @@
              
 odysseyduo
 　　 　　　 　　　 ˳ᴗ ᴗ)　　　　![Alt text](odysseyduo.png)　
-           　　╱　 ִ[☾.𝐴𝑇𝐴 𝐵𝑂𝑂𝐾](https://endles.atabook.org/) / [More about me](https://prns.cc/krdfm)
+           　　╱　 ִ[☾.𝐴𝑇𝐴 𝐵𝑂𝑂𝐾](https://endles.atabook.org/) / [𝐴 𝑙𝑖𝑡𝑡𝑙𝑒 𝑎𝑏𝑜𝑢𝑡 𝑚𝑒](https://prns.cc/krdfm)
    　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
 
 𝑆-𝐴𝑇𝐴 𝑃𝐿𝐸𝐴𝑆𝐸 𝐼'𝑀 𝑊𝐴𝐼𝑇𝐼𝑁𝐺 𝑌𝑂𝑈 ! ^^　　　𓏼 ͜͜✚
