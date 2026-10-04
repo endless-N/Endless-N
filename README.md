@@ -12,10 +12,10 @@
              
 
 　　 　　　 　　　 ˳ᴗ ᴗ)　　　　![Alt text](odysseyduo.png)　
-           
+           　　╱　 ִ[☾.𝐴𝑇𝐴 𝐵𝑂𝑂𝐾](https://endles.atabook.org/)
    　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
 
-　　 Please sign !　　╱　 ִ[☾.𝐴𝑇𝐴 𝐵𝑂𝑂𝐾](https://endles.atabook.org/)　　　𓏼 ͜͜✚
+𝑆-𝐴𝑇𝐴 𝑃𝐿𝐸𝐴𝑆𝐸 𝐼'𝑀 𝑊𝐴𝐼𝑇𝐼𝑁𝐺 𝑌𝑂𝑈 ! ^^　　　𓏼 ͜͜✚
 
 
 　　 　　　 　꒰ྀི![Alt text](Thisnotall.png)　　　　ㅤㅤㅤ꒱ྀི　　 𝄈
